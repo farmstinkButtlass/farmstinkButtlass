@@ -4,9 +4,8 @@
 <!-- html nerds how do i make the text center aligned again... -->
 
 <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/sobbing.png">
+NOOO IM SO SORRY TO THE PERSON WHO WHISPERED THIS EARLIER I DIDNT SEE THIS💔💔💔if youre that person & youre reading this THANKYOUOUYOU!!!
 <br>
-NOOO IM SO SORRY TO THE PERSON WHO WHISPERED THIS EARLIER I DIDNT SEE THIS💔💔💔if youre that person & youre reading this thankyouoyuou!!!
-
 <p align="center">
   okay i kinda forgot how to use github (& maybe how to code a bit WHOOPS) so lets see what happens
   <br><br>
