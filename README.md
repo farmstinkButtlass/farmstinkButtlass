@@ -52,6 +52,10 @@
   <img src="https://i.pinimg.com/originals/0c/67/61/0c67614296cd713d61ab251d2fe05ebd.gif" width=340 height=200>
 </p>
 
+<!-- edits start here -->
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">omega flowey: NO!!! YOU CAN&#39;T DO THAT!!! YOU&#39;RE SUPPOSED TO OBEY ME!!<br><br>the 7 toon links: <a href="https://t.co/hVghvkqduu">pic.twitter.com/hVghvkqduu</a></p>&mdash; Link (@RockEatingHero) <a href="https://twitter.com/RockEatingHero/status/1914788692188713344?ref_src=twsrc%5Etfw">April 22, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<!-- edits end here -->
+
 <p align="center">
    vvv minimize the video below by clicking the header so that this looks nice vvv
   <br>[i have no idea how to center & resize this help]
