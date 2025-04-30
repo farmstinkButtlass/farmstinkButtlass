@@ -20,11 +20,15 @@
   <summary><u><b>interests</b></u></summary>
     <p align="center">
       <br>
-      curently my main interests are scott pilgrim (this includes
-      <br>the comics, takes off, & the movie) & the legend of zelda !
-      <br>[im still suuupppeeerrr new to zelda so i dont know too much though m_ _m"]
+      my main interest at the moment is the legend of zelda!! ive played phantom hourglass,
+      <br>skyward sword, breath of the link, and links awakening :D ive also read the twilight
+      <br>princess manga and i plan on playing all of the games !
       <br><br>
-      <img src="https://64.media.tumblr.com/32f912404ce8067fbc972b72d9e4b420/tumblr_mymvzeBPo71sczkzyo1_500.gif" width=340 height=200>
+      i also like musicals ! my favs are falsettos, cabaret,
+      <br>& the book of mormon ^_^ pleaseee say hi if you like
+      <br>any of these!! id love to chat :D
+      <br><br>
+      <img src="[https://64.media.tumblr.com/32f912404ce8067fbc972b72d9e4b420/tumblr_mymvzeBPo71sczkzyo1_500.gif](https://i.pinimg.com/originals/d2/56/31/d2563117a46d1ccf772980413f37fc27.gif)" width=340 height=165>
     </p>
 </details>
 
@@ -32,7 +36,7 @@
   <summary><u><b>pony town</b></u></summary>
     <p align="center">
       <br>
-      im off-tab 90% of the time, pleasepleaseplease send me a whisper
+      im off-tab 99% of the time, pleasepleaseplease send me a whisper
       <br>if you wanna chat with me though since it helps me see your
       <br>message & ill probably eventually respond if you use a whisp :3
       <br><br>
