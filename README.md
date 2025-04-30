@@ -22,7 +22,7 @@
       <br>
       my main interest at the moment is the legend of zelda!!
       <br>so far ive played phantom hourglass, skyward sword, breath
-      <br> of the wild, and links awakening :D ive also read the twilight
+      <br> of the wild, and links awakening :3 ive also read the twilight
       <br>princess manga and i plan on playing all of the games soon !
       <br><br>
       i also like musicals ! my favs are falsettos, cabaret,
