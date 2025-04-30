@@ -42,7 +42,7 @@
       <br><br>
       ALSO I CANT ROLEPLAY SERIOUSLY FOR MY LIFE IM SORRY
       <br>im just a gal who was trained in unserious roleplay HAJHDAJHA
-      <br>most i can do are jokes and lapras world domination im sorry </333
+      <br>most i can do are a few jokes and lapras world domination im sorry </333
       <br><br>
       <img src="https://i.pinimg.com/originals/ed/3e/0c/ed3e0cb2fd67e6f89cd56d6c23aa86e9.gif" width=340 height=200>
     </p>
