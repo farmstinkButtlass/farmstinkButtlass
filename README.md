@@ -20,15 +20,16 @@
   <summary><u><b>interests</b></u></summary>
     <p align="center">
       <br>
-      my main interest at the moment is the legend of zelda!! ive played phantom hourglass,
-      <br>skyward sword, breath of the link, and links awakening :D ive also read the twilight
-      <br>princess manga and i plan on playing all of the games !
+      my main interest at the moment is the legend of zelda!!
+      <br>so far ive played phantom hourglass, skyward sword, breath
+      <br> of the wild, and links awakening :D ive also read the twilight
+      <br>princess manga and i plan on playing all of the games soon !
       <br><br>
       i also like musicals ! my favs are falsettos, cabaret,
       <br>& the book of mormon ^_^ pleaseee say hi if you like
       <br>any of these!! id love to chat :D
       <br><br>
-      <img src="[https://64.media.tumblr.com/32f912404ce8067fbc972b72d9e4b420/tumblr_mymvzeBPo71sczkzyo1_500.gif](https://i.pinimg.com/originals/d2/56/31/d2563117a46d1ccf772980413f37fc27.gif)" width=340 height=165>
+      <img src="https://i.pinimg.com/originals/d2/56/31/d2563117a46d1ccf772980413f37fc27.gif" width=340 height=165>
     </p>
 </details>
 
