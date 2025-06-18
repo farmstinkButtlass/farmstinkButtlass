@@ -2,7 +2,7 @@
   <body>
   <!-- idk if i have to do this but okay -->
   <p align="center">
-  <a href="https://www.tumblr.com/bylerworld/786699026716409856/i-asked-grok-i-asked-chatgpt-well-mike-wheeler?source=share"><img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/thisisreal.png"></a>
+  <a href="https://www.tumblr.com/bylerworld/786699026716409856/i-asked-grok-i-asked-chatgpt-well-mike-wheeler?source=share"><img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/wellyeah.png"></a>
   </p>
 
   <p align="center">
