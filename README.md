@@ -13,7 +13,7 @@
   <a href="https://falsettos.atabook.org/">my guestbook (i swear i use this)</a> + <a href="https://www.last.fm/user/flowerofthesoul">my last.fm</a>
 
   <p align="center">
-  <a href="https://www.tumblr.com/bylerworld/786699026716409856/i-asked-grok-i-asked-chatgpt-well-mike-wheeler?source=share"><img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/wellyeah.png"></a>
+  <a href="https://www.tumblr.com/bylerworld/786699026716409856/i-asked-grok-i-asked-chatgpt-well-mike-wheeler?source=share"><img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/andagain.png"></a>
   </p>
 
   <details align="center">
