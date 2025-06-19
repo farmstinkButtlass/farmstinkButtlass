@@ -21,14 +21,14 @@
     <p align="center">
       <br>
       unfortunately my main interest right now is stranger things. . 😓
-      <br>im a huge byler truther && el fan !! el hopper you are 3 apples tall
+      <br>im a huge byler truther & el fan !! el hopper you are 3 apples tall
       <br><br>
       i also really like tloz!! ive played sksw, botw, lahd, ph + read the
-      <br>tp manga :D i plan on playing all of the games one day 😄
+      <br>tp manga :D i plan on playing all of the games one day. . . 😄
       <br><br>
-      other things i like are musicals ( my favs are tbom, falsettos, & cabaret )
-      <br>& poofesure's tomodachi life series!!! feel free to say hi if you like
-      <br>any of theseeee,, id love to chat !! 
+      other things i like are musicals ( my favs are tbom, falsettos, &
+      <br> cabaret ) & poofesure's tomodachi life series!!! feel free to
+      <br>say hi if you like any of theseeee,, id love to chat !! 
       <br><br>
       <img src="https://file.garden/ZFwqlyhvAk-Bo3Zk/true.png">
     </p>
