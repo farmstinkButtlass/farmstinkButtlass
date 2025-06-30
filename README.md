@@ -39,6 +39,8 @@
     <p align="center">
       <br>
       okay hold on im too lazy to update this one rn. . ill actually update the pt part of my profile tomorrow lawlz
+      <br>
+      also feel free to c+h yes yes just keep in mind im usually offtab whenever i play pt
       <br><br>
       im off-tab 99% of the time, pleasepleaseplease send me a whisper
       <br>if you wanna chat with me though since it helps me see your
